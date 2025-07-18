@@ -107,7 +107,7 @@ When potential bad actors know their actions might be permanently recorded and i
 
 ## 🚀 Platform Links & Resources
 
-🎥 **Demo Video**: [https://youtu.be/Td1QCxTteMQ](https://youtu.be/Td1QCxTteMQ)
+🎥 **Demo Video**: [https://youtu.be/Td1QCxTteMQ](https://youtu.be/bE6IvL13ufQ)
 
 <br/>
 
